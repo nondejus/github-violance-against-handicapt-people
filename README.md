@@ -1,1 +1,0 @@
-# github-violance-agaginst-handicapt-people
